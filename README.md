@@ -10,4 +10,7 @@ A log of my journey as a musician, spiritualist, technologist, fit badass
 * 08/26/2025 - Spirit - Kabbalah - Key to your inner power (Completed AI-Summary) - Standard stuff about how we all are part of the Divine and how daily meditative practices can help us get connected. (★★★☆☆)
 * 08/26/2025 - Spirit - The Power of Your Supermind (Vernon Howard) - Again on similar lines. About dissolving illusions and connecting to the supermind / Divine. (★★★★☆)
 * 08/26/2025 - Spirit - Psycho-Pictography The New Way to Use the Miracle Power of Your Mind (Vernon Howard) An essential addendum to the previous book to replace mental images with true/calmer ones (★★★★☆)
+* 08/27/2025 - Movie - Watched Incendies https://en.wikipedia.org/wiki/Incendies (7/10)
+* 08/27/2025 - Movie - Watched a documentary Abba: Against the Odds https://www.imdb.com/title/tt31319003/ (7/10)
+*  
 
