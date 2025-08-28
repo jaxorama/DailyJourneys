@@ -12,5 +12,5 @@ A log of my journey as a musician, spiritualist, technologist, fit badass
 * 08/26/2025 - Spirit - Psycho-Pictography The New Way to Use the Miracle Power of Your Mind (Vernon Howard) An essential addendum to the previous book to replace mental images with true/calmer ones (★★★★☆)
 * 08/27/2025 - Movie - Watched Incendies https://en.wikipedia.org/wiki/Incendies (7/10)
 * 08/27/2025 - Movie - Watched a documentary Abba: Against the Odds https://www.imdb.com/title/tt31319003/ (7/10)
-*  
+* 08/28/2025 - IOT - IOT for dummies https://www.qorvo.com/design-hub/ebooks/internet-of-things-for-dummies (★★★★☆) - Quick read 
 
